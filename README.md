@@ -1,2 +1,6 @@
 # pppoker
-scrypt cheat code pppoker visor
+scrypt PPPoker Cheat See All Cards
+telegram: @truemarystory
+prace: $2k 
+payment in cryptocurrency
+video presentation: https://drive.google.com/file/d/1AuxJMpiVJKCBh7g8rSNFvXBJdqfPOUJW/view?usp=sharing 
